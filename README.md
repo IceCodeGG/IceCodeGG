@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IceCodeGG
+- 👀 I’m interested in Playing games and making bots on Discord
+- 🌱 I’m currently learning nothing
+- 📫 How to reach me To write to me add me on discord wakk0_
+- 😄 Pronouns: He/His
